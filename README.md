@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mrschramm
 - 👀 I’m interested in behavioral health 
-- 🌱 I’m currently learning Neuroscience and Psychology 
+- 🌱 I’m currently learning Neuroscience and Psychology at Roanoke College
 - 💞️ I’m looking to collaborate on social and behavioral research 
 - 📫 How to reach me mrschramm@mail.roanoke.edu
 - 😄 Pronouns: she/her
